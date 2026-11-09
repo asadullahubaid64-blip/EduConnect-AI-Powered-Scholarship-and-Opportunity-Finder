@@ -1,0 +1,2 @@
+# EduConnect-AI-Powered-Scholarship-and-Opportunity-Finder
+Many students, especially those living in remote areas, miss valuable scholarships, internships, competitions, and educational opportunities because information is scattered across different websites, social media pages, and institutions. Students also find it difficult to determine whether they are eligible for a particular opportunity.  
